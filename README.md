@@ -1,1 +1,1 @@
-My first readme
+so stange i had to delete it
